@@ -1,4 +1,4 @@
-<p aign ="center"><a href="https://vk.com/id592849426" target="_blank"></a><img scr="https://i.natgeofe.com/k/ad9b542e-c4a0-4d0b-9147-da17121b4c98/MOmeow1_square.png" src= width="400"> </p>
+<p aign ="center"><a href="https://vk.com/id592849426" target="_blank"></a><img scr="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTG23nGg2_a8b1c-DejPxyjL65FsmBcfjabMg&usqp=CAU" src= width="400"> </p>
 
 <p><a href="https://vk.com/id592849426">VK</p>
 
